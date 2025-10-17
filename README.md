@@ -1,0 +1,2 @@
+# HinduTimesMag
+Hindu Times Magazine
